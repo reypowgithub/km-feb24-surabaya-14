@@ -6,7 +6,18 @@
 👨‍🏫 Dally Kharisma Muhammad (Data Analyst Mentor)<br>
 👨‍🏫 Andra Adhiatma Nugraha (Software Engineering Mentor)<br>
 <br>**Members :**<br> 
+[active] Alfika Putri D S - Universitas Semarang<br>
+[active] Ayu Diah Permata - Universitas Udayana<br>
+[active] Gusti Ken' O Rama Dewa - Universitas Airlangga<br>
+[active] Haya Q Luthfiyaningsih - Institut Teknologi PLN<br>
+[active] Katherine Regina - Universitas Indonesia<br>
+[active] Nayla Nur Alifah - IPB University<br>
 [active] Reynhard Powiwi - Telkom University<br>
+[active] Salma Dara Canita - Universitas Lampung<br>
+[active] Salsabila Yonita - Institut Pertanian Bogor<br>
+[active] Tedy Pawer - Universitas Muhammadiyah Riau<br>
+
+
 
 
 
